@@ -1,0 +1,1 @@
+# Qudrat-Abdurahimov-masalalar-to-plami-yechimi
